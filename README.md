@@ -1,2 +1,0 @@
-# tugashurufrano
-huruf RN
